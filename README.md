@@ -1,0 +1,1 @@
+sikerim ananızı bacınızı he 
